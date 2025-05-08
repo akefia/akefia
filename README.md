@@ -5,7 +5,7 @@ Hello "GudBayz" Berasal dari GoodBye
 
 "Bayz" Berasal dari nama tengah saya yaitu Bayu
 
-Jadi disini saya berusaha meninggalkan Saya yang dulu dan menyambut diri saya untuk menjadi Bayu yang lebih baik
+Jadi disini saya berusaha meninggalkan diri saya yang dulu, dan menyambut diri saya untuk menjadi Bayu yang lebih baik
 
 #Enjoy the prosses
 
