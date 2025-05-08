@@ -3,7 +3,7 @@ Hello "GudBayz" Berasal dari GoodBye
 
 "Gud" Berasal dari "Good" yang berarti Baik
 
-"Bayz" Berasal dari nama tengah yaitu Bayu
+"Bayz" Berasal dari nama tengah saya yaitu Bayu
 
 Jadi disini saya berusaha meninggalkan Saya yang dulu dan menyambut diri saya untuk menjadi Bayu yang lebih baik
 
